@@ -1,1 +1,1 @@
-![](https://ezz.moe/profilebanner.png)
+![](https://ezz.moe/profilebanner2.png)
