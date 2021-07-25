@@ -1,1 +1,1 @@
-![](https://ezz.moe/profilebanner2.png)
+Currently redesigning the profile banner again. Stay tuned!
